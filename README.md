@@ -1,0 +1,3 @@
+- 👋 Hi, I’m lol
+- 👀 I’m interested in lol
+- 🌱 I’m currently learning lol
